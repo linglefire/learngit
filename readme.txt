@@ -1,1 +1,1 @@
-i am lingle
+good good study
